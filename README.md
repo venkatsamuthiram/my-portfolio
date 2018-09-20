@@ -1,1 +1,1 @@
-venkatsamuthiram.github.io
+https://venkatsamuthiram.github.io/venkatsamuthiram-portfolio/
